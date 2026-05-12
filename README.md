@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tarielenz
+- 👋 Hi, I’m @Taribor Ajuesi 
 - 👀 I’m interested in product design
 - 🌱 I’m currently learning product desiging
 - 💞️ I’m looking to collaborate on ux case studies
